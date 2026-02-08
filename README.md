@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-Visit me: [teddyaryono.dev](https://teddyaryono.dev)
+More about me: [teddyaryono.dev](https://teddyaryono.dev)
